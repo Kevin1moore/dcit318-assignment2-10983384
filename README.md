@@ -1,1 +1,3 @@
-# dcit318-assignment2-ID
+# dcit318-assignment2-10983384
+#10983384 
+KEVIN JONES NII LANTEI LAMPTEY
